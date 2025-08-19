@@ -6,6 +6,7 @@ sou a thay, tenho 16 anos , estudo no JK e estou no 1 ano
 Sou a thay, tenho 16 anos 
 estudo no JK e estou no 1 ano
 gosto de viajar 
-
+gosto muito de dormir
+amo ficar em casa
 
 
